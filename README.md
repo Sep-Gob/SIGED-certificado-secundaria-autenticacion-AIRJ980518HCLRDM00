@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-AIRJ980518HCLRDM00
+AIRJ980518HCLRDM00
